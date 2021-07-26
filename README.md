@@ -1,0 +1,1 @@
+# Study-of-homogeneous-reservoir-pressure-inversion-model-based-on-permeability-mechanics-and-interpr
